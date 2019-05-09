@@ -1,1 +1,1 @@
-# Afromed
+# KASS Stock
